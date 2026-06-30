@@ -6,6 +6,8 @@
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: my quote is 'don't let the ball drop!'
 
+
+wow what a low effort individual i sure hope she isn't going to an elite institution like cornell
 <!---
 May Ting is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
